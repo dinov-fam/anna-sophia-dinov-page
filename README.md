@@ -1,2 +1,1 @@
-# anna-sophia-dinov-page
-Anna-Sophia Dinov's page
+# Anna-Sophia Dinov's page
